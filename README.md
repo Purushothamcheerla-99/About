@@ -4,6 +4,6 @@ RTl Design Engineer
 -------------------------
 
 *   🌍  I'm based in INDIA
-*   ✉️  You can contact me at [purushotham9903@gmail.com](mailto:purushotham9903@gmail.com"
+*   ✉️  You can contact me at [purushotham9903@gmail.com]
                     
          
